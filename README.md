@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @B-Boy-1601
+- 👀 I’m interested in coding ig mainly games
+- 🌱 I’m currently learning school lol
+- 💞️ I’m looking to collaborate with my freinds
+- 📫 How to reach me dont but if u do mrbobbybaxter@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im actually not gay...
